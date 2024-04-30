@@ -9,7 +9,7 @@
 
    &nbsp;
     
-   &nbsp;&#10022; Just call me **Old Cat**
+   &nbsp;&#10022; Hi I'm **Kankan Gain**
 
    &nbsp;&#10022; Currently pursuing an applied bachelor's degree in **Computer Application**
 
